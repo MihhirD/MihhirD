@@ -98,7 +98,7 @@ I work at the intersection of **technology, product, and business**, focusing on
 
 ---
 
-## ⚡ Fun Fact
+## ⚡ Fun Fact About Me
 
 > *"Humble with a hint of Kanye"* 😄
 
